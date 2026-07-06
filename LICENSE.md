@@ -1,4 +1,4 @@
-# 
+# Instantâneo WizTree complementos para Mac OS | Profissional WizTree complementos para PC Windows. Com integracao com bandeja do sistema e varredura rapida — otimizado para máximo desempenho em cada plataforma.
 
 
 
